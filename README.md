@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **harishelakkumanan2001@gmail.com**
 
-- ⚡ Fun fact **I think, I am a Crazy thinker**
+- ⚡ Fun fact **is, I am a Crazy thinker**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
