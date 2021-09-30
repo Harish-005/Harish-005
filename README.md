@@ -13,8 +13,6 @@
 
 - 📫 How to reach me **harishelakkumanan2001@gmail.com**
 
-- 📄 Here is my Resume [https://drive.google.com/file/d/1Nf-FgZDKqA4d3LLhaj7eRCkG03bRdoBy/view?usp=sharing](https://drive.google.com/file/d/1Nf-FgZDKqA4d3LLhaj7eRCkG03bRdoBy/view?usp=sharing)
-
 - ⚡ Fun fact **I think, I am a Crazy thinker**
 
 <h3 align="left">Connect with me:</h3>
